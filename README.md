@@ -5,4 +5,5 @@ Microsoft CEO and incontinent over-stater of facts Steve Ballmer said that "Linu
 
 Mr. Nadella said today the company is "all in with open source," and requested people to judge the company's commitment to the open source community with its actions in the **recent past,**
 
-### so 18 years is 'recent', huh?
+### so 17 years is 'recent', huh?
+I sincerely hope nobody is fooled.
